@@ -2,7 +2,7 @@
 - 👀 J'ai un centre d'intérêt pour la programmation web et mobile, l'UX et l'UI, la gestion de projet (les méthodologies agiles)
 - 🌱 Actuellement, j'apprend l'anglais orienté informatique, le framework Symfony
 - 💞️ I’m looking to collaborate on many projects include web and mobile applications
-- 📫 josue.kouadio2022@esatic.edu.ci |josue.kouadio@outook.fr | +225 01 01 53 09 9634 | +225 07 07 77 01 5385 |
+- 📫 josue.kouadio2022@esatic.edu.ci |josue.kouadio@outook.fr | +225 01 53 09 9634 | +225 07 77 01 5385 |
 - 😄 My hobbies are : reading, watching films (horrible, fiction)
 
 

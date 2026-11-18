@@ -45,7 +45,7 @@ I build secure, intelligent and scalable web and mobile applications with a focu
 I'm open to collaborating on web, mobile and AI projects, and to remote or hybrid opportunities.
 
 ## 📫 Contact
-- ✉️ josue.kouadio2022@esatic.edu.ci | josue.kouadio@outook.fr
+- ✉️ josue.kouadio2022@esatic.edu.ci | kouadiojosuenoelyao@gmail.com
 - 📞 +225 01 53 09 9634 | +225 07 77 01 5385
 - 💼 [LinkedIn](https://www.linkedin.com/in/josué-noël-yao-kouadio-997a82268)
 
